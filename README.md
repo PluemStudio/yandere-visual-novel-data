@@ -1,0 +1,1 @@
+# yandere-visual-novel-data
